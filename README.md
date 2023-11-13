@@ -1,2 +1,1 @@
-1234# YashwanthReddyAdumala.github.io
-oguirlvlyu
+# YashwanthReddyAdumala.github.io
